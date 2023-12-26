@@ -12,5 +12,7 @@
 
 *crowning is DEFINITELY okay* ! ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ i *love* being crowned and those cat/bunny ear ponies r so cute , so thats ok too! **i don't like mistletoes because im usually sitting next to my friends & i think of them as a family member** ! ˎˊ˗
 
+**also , idle is my main status so im probably ok!! if i use online/busy please iwc ^_^**
+
 ![garden](https://caterpie.crd.co/assets/images/gallery11/13544be6.png?v=20d3512b)
 
