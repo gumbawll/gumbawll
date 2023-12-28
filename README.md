@@ -11,12 +11,11 @@
 
 ![mid2](https://64.media.tumblr.com/0b320fd65a77983691c4bd50474c475f/de3806085997d66d-70/s540x810/5f13668eb434a24b0e5d4c72647df316b6bc20f0.pnj)
 
-*crowning is DEFINITELY okay* ! ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ i *love* being crowned because it makes me feel special. and those cat/bunny ear ponies r so cute , so thats ok too! **i don't like mistletoes because im usually sitting next to my friends & i think of them as a family member** ! ˎˊ˗
+*crowning is DEFINITELY okay* ! ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ i *love* being crowned because it makes me feel sooo very special. and those cat/bunny ear ponies r so cute , so thats ok too! **i don't like mistletoes because im usually sitting next to my friends & i think of them as a family member** ! ˎˊ˗
 
 ![mid3](https://64.media.tumblr.com/0b320fd65a77983691c4bd50474c475f/de3806085997d66d-70/s540x810/5f13668eb434a24b0e5d4c72647df316b6bc20f0.pnj)
 
 **also , idle is my main status so im probably ok!! if i use online/busy please iwc / iwec ^_^** ;; 
-please check out my rentry , there's more there. 
 
 don't be afraid to send a message in my guestbook because i love replying to them!
 
