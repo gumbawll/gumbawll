@@ -1,23 +1,26 @@
-![top](https://64.media.tumblr.com/b8e52adadc128b0d2d12e0034b38c603/6610d4ad3f2ba77c-ae/s540x810/872140d34f78ec503667774874866015a8d242dd.gifv) 
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ![guh](https://64.media.tumblr.com/b8f982f407da98f2de8175a6ceb9638f/050341b0bb3794bd-2f/s400x600/b05fbe4dec2f1029ce92a72e7a53e359a2a9067a.pnj)
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎「 GOOD TO BE BACK ON THE AIR *!* 」
 
-𖦹 : i wanna start with the major stuff , copying is not allowed ; taking inspiration is ok *! !*
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![div](https://64.media.tumblr.com/412c9177c4f98a33416bbc3dcd492a06/489d4f810a782c73-62/s640x960/12ead9a1efc63cf098e66c6398d6374106abbd46.pnj)
 
-![mid](https://64.media.tumblr.com/0b320fd65a77983691c4bd50474c475f/de3806085997d66d-70/s540x810/5f13668eb434a24b0e5d4c72647df316b6bc20f0.pnj)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ hello ! i go by spark , other names listed in pronouns page , 
 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎please check out my rentry + leave a msg in guestbook!
 
-**booping , kissing , sitting next to me & whatever is okay** ! if you do that one sitting and standing up thing/the nsfw thing on me i will hide you ! most of the ponies i use are minors and i'm a minor sooo  ....... ![real](https://maguro.carrd.co/assets/images/gallery08/347f80df.gif?v=6d27d80b)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎![divide](https://64.media.tumblr.com/ec378b1dfae03d3b2df4dbfe64db4ed2/2713fd4154490ecb-d7/s640x960/4fa51ad2b6ef67cfb2f86ea1f832f2fa6b121cf2.pnj)
 
-![mid2](https://64.media.tumblr.com/0b320fd65a77983691c4bd50474c475f/de3806085997d66d-70/s540x810/5f13668eb434a24b0e5d4c72647df316b6bc20f0.pnj)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ this dni is for **ponytown only.** 
 
-*crowning is DEFINITELY okay* ! ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ i *love* being crowned because it makes me feel sooo very special. and those cat/bunny ear ponies r so cute , so thats ok too! **i don't like mistletoes because im usually sitting next to my friends & i think of them as a family member** ! ˎˊ˗
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i suggest you check my rentry to see my general dnis + byi ^_^
 
-![mid3](https://64.media.tumblr.com/0b320fd65a77983691c4bd50474c475f/de3806085997d66d-70/s540x810/5f13668eb434a24b0e5d4c72647df316b6bc20f0.pnj)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![divider](https://64.media.tumblr.com/d0f2c73c84b15cc21dc8ddfd6de117a6/0ec54706359ceab6-99/s400x600/9ac7fbee1722d5485a7f6c457bd621240fe0f440.pnj)
 
-**also , idle is my main status so im probably ok!! if i use online/busy please iwc / iwec ^_^** ;; 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ # DNI ! 
 
-don't be afraid to send a message in my guestbook because i love replying to them!
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎- please dni if you're a mistletoe user , my friends & i are not comfortable and usually we think of eachother as siblings !
 
-![bottom](https://cdn.discordapp.com/attachments/1064597015503315054/1127294873133920336/Untitled2425_20230708184658.png)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ - also dni if you preform any nsfw actions EVEN if i'm cosplaying a.d ;; thank you !
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![l](https://64.media.tumblr.com/14a14b71c00810c82a6f4806a6a68583/050341b0bb3794bd-e8/s640x960/47f86ba84ddf7419d7fb4ade63bf8f65a8edac25.pnj)
