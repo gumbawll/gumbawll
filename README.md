@@ -1,22 +1,19 @@
-![](https://komarev.com/ghpvc/?username=gumbawll)
+
+
+![viewcount](https://komarev.com/ghpvc/?username=gumbawll)
+
+![top](https://files.catbox.moe/3072if.png)
+
+***
+
+<h3 align="center"> <sub><sup>hi !! please check out my rentry and sign ノ leave a message in my strawpage. i'm usually offtab, so always w2i !!</sup></sub>
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+<h3 align="center"> <sub><sup>i'm absolutely terrible with convos, so i usually do <i>not</i> carry the convo. i apologize in advance ❀ !!!</sup></sub>
 
 
 
-<h3 align="center">
-<img src="https://github.com/gumbawll/gumbawll/assets/144180367/3831344a-e6a9-483c-979d-d1c193e8326a"   </h3>
-
+  ![bottom](https://files.catbox.moe/oxg2p8.png) 
 
   
-<i> ma cherie 𓈒 </i>
-
-</p>
-
-this is very lazily made. pls check out my rentry!
-
-i am *definitely* ok with booping, kissing crowning whatever. anything that isn't ..weird!!
-
-thank you , bye :0 
-
-
-
-
