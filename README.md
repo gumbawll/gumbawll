@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=50&color=2B6255&random=false&width=435&lines=After+all+this+time...+;you've+finally+come+back+for+me.;But...+tomorrow...you're+going+away.;H-HOW+COULD+YOU+DO+THAT!%3F!%3F)](https://git.io/typing-svg)
 
 
 ![viewcount](https://komarev.com/ghpvc/?username=gumbawll)
@@ -12,9 +13,4 @@
 
 <h3 align="center"> <sub><sup>i'm absolutely terrible with convos, so i usually do <i>not</i> carry the convo. i apologize in advance ❀ !!! i sit in the phighting area a lot, you can generally find me there as one of my basil ponies !</sup></sub>
 
-
-
-![](https://s3.ezgif.com/tmp/ezgif-3-78f7ee6b19.webp)
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=50&color=2B6255&random=false&width=435&lines=After+all+this+time...+;you've+finally+come+back+for+me.;But...+tomorrow...you're+going+away.;H-HOW+COULD+YOU+DO+THAT!%3F!%3F)](https://git.io/typing-svg)
   
