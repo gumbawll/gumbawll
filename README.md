@@ -10,6 +10,5 @@
 
 <h3 align="center"> <sub><sup>i'm absolutely terrible with convos, so i usually do <i>not</i> carry the convo. i apologize in advance ❀ !!! i sit in the lmk area a lot with my friend. other than that, i usually sit wherever. dni if you're a freak aaand just basic dni. otherwise, you're free to int! i respect anyones interest</sup></sub>
 
-<h3 align="center"> <sub><sup>please check my rentry / strawpage! sign my strawpage btw i'll put your note / drawing on my strawpage ^ _ ^
 
   
