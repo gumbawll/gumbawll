@@ -1,7 +1,7 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=gumbawll&label=hi+ponytown+gamer&color=463F3A)
-
 <p align="center"> 
-    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0494.png"/>
+    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0513.png"/>
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=gumbawll&label=hi+ponytown+gamer&color=463F3A)
 
 <p align="center"> 
     <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0496.png"/>
@@ -18,7 +18,7 @@
    <br> ${\textsf{\color{#DBBADD} -- which ‎ ‎ ‎ ‎ ‎  ‎    is   ‎ ‎ ‎ ‎ ‎  ‎  all    ‎ ‎ ‎ ‎ ‎  ‎ the    ‎ ‎ ‎ ‎ ‎  ‎ time .. so ₊ leave   a   msg   in   my   strawpage ( ദ്ദി ˙ᗜ˙ ) .}}$ 
  <br>
 
-<p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0495.png"/>
+<p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0517.png"/>
 
 ⟢ thanx aesop for letting me take some of your codes ! i won't hit you with a beer bottle for the next 2 days you're spared 
 
