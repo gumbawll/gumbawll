@@ -4,7 +4,7 @@
     <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0494.png"/>
 
 <p align="center"> 
-    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0493.png"/>
+    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0496.png"/>
 <p align="center"> ⸝⸝⸝
 <p align="center">
    <br> ${\textsf{\color{#DBBADD}mainly iwc , i'm bad at starting/continuing conversations so i won't start one unless i'm trolling around}}$ 
