@@ -1,10 +1,10 @@
 <p align="center"> 
     <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0513.png"/>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=gumbawll&label=★&color=463F3A)
+‎ ‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=gumbawll&label=★&color=463F3A)
 
 <p align="center"> 
-    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0826.png"/>
+    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0893.png"/>
 <p align="center">  
     
 
@@ -28,6 +28,8 @@
 <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0517.png"/>
 
 ⟢ thanx aesop for letting me take some of your github stuff & letting me take inspo and helping me
+
+⟢ graphics by me art by aesop [ aesvic on gh ]
 
 
 
