@@ -18,7 +18,7 @@
     <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_0518.png"/>
 
 <p align="center">
-   <br> ${\textsf{\color{#DBBADD}you can learn more about me in my rentry than here . but these are the basics !! }}$ 
+   <br> ${\textsf{\color{#DBBADD}i cannot match your energy. its way too hard for me so please don't expect me to match your personality. }}$ 
  <br>
 
 <p align="center">
