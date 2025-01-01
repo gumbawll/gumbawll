@@ -21,7 +21,7 @@
  <br>
 
  <p align="center">
-   <br> ${\textsf{\color{#C8C4C2}i'm 　not 　open 　to 　roleplay. 　tweek 　cosplayers 　𝓼𝓽𝓸𝓹 ‪‪❤︎‬}}$ 
+   <br> ${\textsf{\color{#C8C4C2}i'm 　not 　open 　to 　roleplay　.　 tweek　　ponies　 𝓼𝓽𝓸𝓹 ‪‪❤︎‬}}$ 
  <br>
 
 <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/Untitled1360_20250101095551.png"/>
