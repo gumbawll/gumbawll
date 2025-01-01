@@ -4,7 +4,7 @@
 ‎ ‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎![](https://komarev.com/ghpvc/?username=gumbawll&label=★&color=463F3A)
 
 <p align="center"> 
-    <img src="https://files.catbox.moe/pyu3oj.png"/>
+    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_2044.png"/>
 <p align="center">  
 
 
