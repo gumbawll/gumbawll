@@ -13,11 +13,11 @@
 
 
 <p align="center">
-   <br> ${\textsf{\color{#C8C4C2}spark　ᴼᴿ　craig　𓎟　he　ノ　him　　𓈒　　whisp　　to　　interact　　✦　　 i'm　　always　　off-tab}}$ 
+   <br> ${\textsf{\color{#C8C4C2}spark　ᴼᴿ　craig　𓎟　he　ノ　him　　𓈒　　w2i　　✦　　 i'm　　always　　off-tab}}$ 
  <br>
 
  <p align="center">
-   <br> ${\textsf{\color{#C8C4C2}sign　straw　page　and　my　neo　spring 　𓈒　 check　out　my　rentry　aswell 𓈒}}$ 
+   <br> ${\textsf{\color{#C8C4C2}sign　straw　page 　𓈒　 check　out　my　rentry　aswell 𓈒}}$ 
  <br>
 
  <p align="center">
