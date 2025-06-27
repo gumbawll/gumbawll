@@ -21,7 +21,7 @@
  <br>
 
  <p align="center">
-   <br> ${\textsf{\color{#C8C4C2}sign 　my 　atabook 　!‬}}$ 
+   <br> ${\textsf{\color{#C8C4C2}sign　　 my　　 atabook 　!‬}}$ 
  <br>
 
 <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/Untitled1360_20250101095551.png"/>
