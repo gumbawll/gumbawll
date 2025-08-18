@@ -17,7 +17,7 @@
  <br>
 
  <p align="center">
-   <br> ${\textsf{\color{#C8C4C2}ponytown silenced me because i'm hispanic rip spzrkcat july 2020-2025}}$ 
+   <br> ${\textsf{\color{#C8C4C2}rip spzrkcat july 2020-2025}}$ 
  <br>
 
 <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/Untitled1360_20250101095551.png"/>
