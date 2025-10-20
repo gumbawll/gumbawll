@@ -30,5 +30,5 @@
 
 ⟡ all graphics by me . art not mine . shoutout to aes#p for helping me figure out what a github readme is and shoutout to m*z for buying me trillions and quadrillions of hachiware plushies. much appreciated ![](https://64.media.tumblr.com/64b796fb21b47aaec7ed8f5860710e7a/e92e724d08501b36-a2/s75x75_c1/dbc8958ff913efdf4d6bce596b497ea140c95e31.gifv)
 
-
+err this is a year old . i have to remake this . -- 10/19/25
   
