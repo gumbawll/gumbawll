@@ -1,12 +1,14 @@
 <p align="center">
-  <img src=https://komarev.com/ghpvc/?username=gumbawll&style=flat-square&color=992222&label=+++𖥔++++++>
+  <img src=https://komarev.com/ghpvc/?username=gumbawll&style=flat-square&color=403D40&label=+++𖥔++++++>
+
+  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_2025-11-08-215050.png"/>
 
 <p align="center">
-   <br> ${\textsf{\color{#992222}spark　𓎟　he　、　him　}}$ 
+   <br> ${\textsf{\color{#8E8B8F}spark　ᵒᵘ　basil　𓎟　he　、　him　}}$ 
  <br>
 
  <p align="center">
-   <br> ${\textsf{\color{#992222}sign　　　straw　　ノ　　ata　　!　　}}$ 
+   <br> ${\textsf{\color{#8E8B8F}sign　　　straw　　ノ　　ata　　!　　}}$ 
  <br>
 
 
@@ -20,5 +22,4 @@
 <p align="center">
 
 
-ill make graphics and rmk this soon OK
-https://www.tiktok.com/t/ZTMXbFmLD/
+  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_2025-11-08-215204.png"/>
