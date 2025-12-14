@@ -1,7 +1,9 @@
 <p align="center">
   <img src=https://komarev.com/ghpvc/?username=gumbawll&style=flat-square&color=403D40&label=+++𖥔++++++>
 
-  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_2025-11-08-215050.png"/>
+  
+
+  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/Untitled1566_20251213223639.PNG"/>
 
 <p align="center">
    <br> ${\textsf{\color{#8E8B8F}spark　ᵒᵘ　basil　𓎟　he　、　him　}}$ 
@@ -20,6 +22,3 @@
 
 
 <p align="center">
-
-
-  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_2025-11-08-215204.png"/>
