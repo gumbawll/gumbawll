@@ -3,7 +3,7 @@
 
   
 
-  <p align="center"> <img src="https://pbs.twimg.com/media/FKlm_3wVcAQeURw?format=png&name=240x240"/>
+  <p align="center"> <img src="https://64.media.tumblr.com/6a743a6567fbd5d946b0dd5efd3150ab/427c2c6c0cc308be-12/s500x750/688fd3c6134c01a9ff4514787375c1813e465216.pnj"/>
 
 <p align="center">
    <br> ${\textsf{\color{#8E8B8F}spark　ᵒᵘ　basil　𓎟　he　、　him　}}$ 
@@ -16,9 +16,5 @@
 
  <br>
  ⁺ 　 .　　<a href="https://basil.atabook.org">atabook</a>　　　　<a href="https://sparkedup.straw.page">strawpage</a>　　 　 . ✦
-
-<p align="center">
-  <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=31pyyswrryb5reafgjxmtr6ptmnq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=fffcfc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
 
 <p align="center">
