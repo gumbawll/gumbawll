@@ -15,6 +15,6 @@
 
 
  <br>
- ⁺ 　 .　　<a href="https://basil.atabook.org">atabook</a>　　　　<a href="https://rentry.co/linksadventures">rentry</a>　　 　 . ✦
+ ⁺ 　 .　　<a href="https://basil.atabook.org">atabook</a>　　　　<a href="https://rentry.co/twilightful">rentry</a>　　 　 . ✦
 
 <p align="center">
