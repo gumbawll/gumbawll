@@ -19,15 +19,7 @@
 <div align="center">
   
 
-<table>
-  <tr align="center">
-    <th>
-      <a href="https://www.last.fm/user/spzrkcat">
-        <img src="https://lastfm-recently-played.vercel.app/api?user=spzrkcat&show_user=header&footer_style=wave&count=1&width=350&loved=true&loved_style=2&header_style=none&bg_color=0D1117" alt="Last listened to">
-      </a>
-    </th>
-  </tr>
-</table>
+
 
 
 
