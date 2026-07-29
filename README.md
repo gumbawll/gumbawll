@@ -1,26 +1,45 @@
 <p align="center">
-  <img src=https://komarev.com/ghpvc/?username=gumbawll&style=flat-square&color=403D40&label=+++𖥔++++++>
-
-
-
-
- ㅤ 
-
-  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/1000"width="25%"/>
+  <img src=https://komarev.com/ghpvc/?username=gumbawll&base=10000&style=flat-square&color=2a1136&label=+++HELLO+,+DARLING+!+𖥔++++++>
 
 <p align="center">
-   <br> ${\textsf{\color{#8E8B8F} 🐾 }}$ 
+  <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/jhi"width="67%"/>
+
+<p align="center">
+   <br> ${\textsf{\color{#D4f7fd} OH , YES ! ! }}$ 
  <br>
 
 
- <br>
-<a href="https://basil.atabook.org">atabook</a> <br> ${\textsf{\color{#9ca488} (:̲̅:̲̅:̲̅[̲̅: ✚ :]̲̅:̲̅:̲̅:̲̅) }}$　　<br> <a href="https://rentry.co/twilightful">rentry</a>
+
+  <a href="https://basil.atabook.org/">
+  <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_8548.png" alt="atabook" width="15%">
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+</a>&nbsp;&nbsp;
+<a href="https://rentry.co/twilightful">
+  <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/IMG_8549.png" alt="rentry" width="15%">
+</a>
 
 <div align="center">
-  
+  </a>&nbsp;&nbsp;
+  </a>&nbsp;&nbsp;
+  </a>&nbsp;&nbsp;
+<p align="center">
+  <a href="https://youtu.be/ogNHObCZjwU?si=2FmudJJ2JMKg5jHZ&t=3">
+    <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/Mettaton_EX_overworld.webp" width="15%" alt="WATCH THIS!!!!!!!!!!!!">
+  </a>
+</p>
 
-
-
-
+<p align="center">
+   <br> ${\textsf{\color{#D4f7fd}click him}}$ 
+ <br>
 
 <p align="center">
