@@ -1,6 +1,19 @@
 <p align="center">
   <img src=https://komarev.com/ghpvc/?username=gumbawll&base=10000&style=flat-square&color=2a1136&label=+++HELLO+,+DARLING+!+𖥔++++++>
 
+<div align="center">
+
+<br> ${\textsf{\color{#D4f7fd}ponytown's mettaton}}$  
+
+<a href="https://github.com/pt-walk-of-fame"> 𝟎 𝟏 </a> &nbsp;⁺&nbsp;
+<a href="https://github.com/pt-hall-of-media"> 𝟎 𝟐 </a>  
+
+<br> ${\textsf{\color{#D4f7fd}(｡•̀ᴗ-)✧}}$
+
+</div>
+
+</a>&nbsp;&nbsp;
+
 <p align="center">
   <p align="center"> <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/jhi"width="67%"/>
 
