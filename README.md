@@ -37,7 +37,7 @@
 </a>&nbsp;&nbsp;
 </a>&nbsp;&nbsp;
 </a>&nbsp;&nbsp;
-<a href="https://rentry.co/twilightful">
+<a href="https://rentry.co/hollowpurple">
   <img src="https://file.garden/ZvCqhdy8jhQoAZIQ/Untitled1684_20261031090010.png" alt="rentry" width="25%">
 </a>
 
